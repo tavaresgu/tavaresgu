@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tavaresgu
+- 👀 I’m interested in learning mor about programming 
+- 🌱 I’m currently learning Science in Management Information Systems (MIS)
+- 💞️ I’m looking to collaborate on whatever a company can offer me, I just want to learn more
+- 📫 How to reach me: gustavobrandaotavaress@gmail.com
